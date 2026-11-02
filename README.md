@@ -1,2 +1,2 @@
-# 6-sinf-Fizika
+# 6-sinf-Tabiiy fanlar
 Elektron darslik
